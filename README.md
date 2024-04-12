@@ -22,4 +22,4 @@ Los drones nos permiten llegar a lugares donde los métodos tradicionales de tra
 
 Si compartes nuestra pasión por la tecnología y la ayuda humanitaria, ¡te invitamos a unirte a nuestra comunidad! 🙌 Juntos podemos hacer una diferencia en el mundo. 🌎
 
-**#DronesParaElBien #AyudaHumanitaria #Innovación #NEXA**
+**#DronesParaElBien #Innovación #NEXA**
